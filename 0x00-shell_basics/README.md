@@ -1,1 +1,1 @@
-I have a very cute and handsome friend.
+r e a d m e
